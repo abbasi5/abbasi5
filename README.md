@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+I am an inquisitive and dedicated professional with a strong sense of responsibility, committed to understanding how things work and ensuring the success of every project from start to finish, while leveraging my skills in leadership, management, and mentorship.
 <!--
 **abbasi5/abbasi5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
